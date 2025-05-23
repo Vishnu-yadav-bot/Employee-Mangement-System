@@ -86,6 +86,8 @@ You can include screenshots of the UI such as:
 
 **G. Vishnu**
 Sri Venkateshwara Engineering College, Tirupati
+
 Email:\gvishnuyadav3@gamil.com
+
 LinkedIn: \[Add your LinkedIn URL]
 
